@@ -1,4 +1,4 @@
-
+exclusive CorelDRAW for macOS Panel | layer styles + content-aware fill is the best CorelDRAW for macOS panel, featuring layer styles and content-aware fill. Safe, efficient, and
 
 
 
